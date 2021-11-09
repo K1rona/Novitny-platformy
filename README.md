@@ -1,0 +1,1 @@
+# Novitny-platformy 1
